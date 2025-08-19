@@ -7,4 +7,4 @@ My name is Ernest Musumbi
 - Am also working on my brand EASTSIDE 
 -  I’m looking to forward to be one of the best IT wizards in Kenya
 - For your graphic design needs
-- Reach me on: eastside00020@gmail commd ...
+- Reach me on: eastside00020@gmail 
