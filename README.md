@@ -1,8 +1,10 @@
 ## Hello and welcome👋
 
-My name is Ernest Musumbi a 19 year old. The world needs change and we as young people of Kenya are the ones to change that using technology.
-- 🔭 I’m currently working in a branding company 
-- 🌱 I’m currently learning programing at IYF
-- 👯 I’m looking to forward to be one of the best IT wizzards 
+My name is Ernest Musumbi
+- I like playing video games as they are my source of creativity 
+- I work as a graphic designer at a   Epic Brands
+- I'm currently learning programming at IYF Free Weekend Academy 
+- Am also working on my brand EASTSIDE 
+-  I’m looking to forward to be one of the best IT wizards in Kenya
 - 😀 If you have any graphic design job am your guy
-- 💬 eastside00020@gmail.commd ...
+- Reach me on: eastside00020@gmail.commd ...
