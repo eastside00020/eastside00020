@@ -6,5 +6,8 @@ My name is Ernest Musumbi
 - I'm currently learning programming at IYF Free Weekend Academy 
 - Am also working on my brand EASTSIDE 
 -  I’m looking to forward to be one of the best IT wizards in Kenya
-- 😀 If you have any graphic design job am your guy
-- Reach me on: eastside00020@gmail.commd ...
+- For your graphic design needs
+- Reach me on: 
+0107224086
+eastside00020@gmail
+River road, Nairobi.commd ...
