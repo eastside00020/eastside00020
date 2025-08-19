@@ -1,10 +1,6 @@
-## Hi there 👋
+## Hello and welcome👋
 
-<!--
-**eastside00020/eastside00020** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
+My name is Ernest Musumbi a 19 year old. The world needs change and we as young people of Kenya are the ones to change that using technology.
 - 🔭 I’m currently working in a branding company 
 - 🌱 I’m currently learning programing at IYF
 - 👯 I’m looking to forward to be one of the best IT wizzards 
