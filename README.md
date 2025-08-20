@@ -8,3 +8,4 @@
 -😎 I’m looking to forward to be one of the best IT wizards in Kenya
   For your graphic design needs
 - Reach me on: 📩eastside00020@gmail 
+...cmd
